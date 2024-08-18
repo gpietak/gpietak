@@ -17,4 +17,4 @@ Feel free to explore some of my coursework and personal projects below:
 
 ## 🌟 Let's Connect!
 
-For more information and to connect with me, feel free to reach out on [LinkedIn](https://www.linkedin.com/in/grace-pietak/) ✨💼
+For more information and to connect with me, feel free to reach out on [LinkedIn](https://www.linkedin.com/in/grace-pietak/) 💼
