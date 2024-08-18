@@ -6,7 +6,7 @@
 
 - 🌟 Passionate about **optimization**, **data analysis**, and **process improvement**.  
 - 💡 Focused on leveraging data-driven solutions to enhance operational efficiency and drive innovation.
-- 🤖 Enthusiastic about exploring new technologies and advancements to stay at the forefront of innovation. 🚀📚
+- 🤖 Enthusiastic about exploring new technologies and advancements to stay at the forefront of innovation. 
 
 
 
